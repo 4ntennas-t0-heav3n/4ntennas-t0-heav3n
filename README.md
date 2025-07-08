@@ -1,16 +1,27 @@
-## Hi there 👋
+- - -
+- - -
+# ❝ I'M A WAKING HELL / AND THE GODS GROW TIRED . ❠
+BENJAMIN / CALAMMITY ﹕ HE / IT . MASC TERMS ✦
 
-<!--
-**4ntennas-t0-hean3n/4ntennas-t0-hean3n** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+╴>  FIND ME AROUND THE BARRELS OR HIDDEN IN THE BACK OF THE BAKERY ⬎
+> IM USUALLY ON WITH FRIENDS AND USUALLY STICK TO INTERACTING WITH THEM, WILL BE AWKWARD WHEN TALKING TO NEW PEOPLE. BUT PLEASE DO INTERACT !!
 
-Here are some ideas to get you started:
+╴NO C+H UNLESS CLOSE OR I GIVE PERMISSION . FRIENDS ALWAYS ALLOWED TO C+H 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ - - -
+ ## **INTERESTS** ﹕
+ ***SLEEP TOKEN . GHOST [THE BAND]*** . *ULTRAKILL . DESTINY GAME SERIES . DELTARUNE . SPIDERVERSE MOVIES* . CCCC
+  - - -
+ ## **OTHER INFO** ﹕
+ - ***I DO NOT ENTIRELY HAVE A DNI LIST .*** I BLOCK WHO I NEED TO AND I LEAVE IT ALONE .
+
+ - ***I DO USE TONE TAGS AND RECOMMEND PEOPLE USE THEM AROUND ME !*** NOT FORCED TO I JUST MIGHT HAVE A HARD TIME TELLING TONE !
+ - ***IF I DO ANYTHING WRONG PLEASE TELL ME .*** I WOULD NOT LIKE TO BE CREATING PROBLEMS .
+ - - -
+ ## **SOCIALS** ﹕
+ TUMBLR . [4NTENNAS-T0-HEAV3N](https://www.tumblr.com/4ntennas-t0-heav3n)
+ 
+ STRAWPAGE . [HYPNOTIZE ME ALWAYS](https://hypnotizemealways.straw.page/) [ DESKTOP ONLY ]
+
+ - - -
+ - - -
