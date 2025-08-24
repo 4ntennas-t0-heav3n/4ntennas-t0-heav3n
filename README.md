@@ -21,7 +21,7 @@ BENJAMIN / CALAMMITY ﹕ HE / IT . MASC TERMS ✦
  ## **SOCIALS** ﹕
  TUMBLR . [4NTENNAS-T0-HEAV3N](https://www.tumblr.com/4ntennas-t0-heav3n)
  
- STRAWPAGE . [HYPNOTIZE ME ALWAYS](https://hypnotizemealways.straw.page/) [ DESKTOP ONLY ]
+ STRAWPAGE . [HYPNOTIZE ME ALWAYS](https://awakinghell.straw.page/) [ DESKTOP ONLY ]
 
  - - -
  - - -
